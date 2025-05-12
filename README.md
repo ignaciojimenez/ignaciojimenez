@@ -56,13 +56,6 @@ I regularly do skip-level 1:1s to learn how teams are doing and whether we need 
 You can find out more about me at [ignacio.systems](https://ignacio.systems/)
 
 ---
-Thanks for taking the time to read this. If you ever wonder where I’m coming from — just ask.
-
-**Things that trigger me.** Stating opinions as facts. Broad generalizations. Self-centeredness. Recurring victimism.
-
-You can find out more about me at [ignacio.systems](https://ignacio.systems/)
-
----
 
 Thanks for taking the time to read this. If you ever wonder where I’m coming from — just ask.
 
